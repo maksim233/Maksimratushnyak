@@ -1,1 +1,1 @@
-Hello, my name is Maksim Ratushnyak. 651/1
+Hello, my name is Maksim Ratushnyak. 651/1 group
